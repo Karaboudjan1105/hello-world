@@ -2,6 +2,6 @@
 
 Hello everybody!
 
-I'm an student from High School Virgen del Carmen since 2018
+I'm a student from High School Virgen del Carmen since 2018
 
 I live in Jaen, Andalousie
